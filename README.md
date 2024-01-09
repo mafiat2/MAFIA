@@ -1,4 +1,4 @@
-UPDATE DONE V 3.7 🥷🏻🇦🇱
+UPDATE DONE V 3.8 🥷🏻🇦🇱
 FREE COMMAND ENJOY
 
 💀  M1 ✅ M2 ✅
